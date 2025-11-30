@@ -1,0 +1,1 @@
+# Karakter-tabanl-hayatta-kalma-sim-lat-r-
